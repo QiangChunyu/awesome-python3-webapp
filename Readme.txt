@@ -1,2 +1,2 @@
 QCY is me
-TYX  is her
+TYX  is my girl
